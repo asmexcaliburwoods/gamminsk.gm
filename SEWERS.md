@@ -24,4 +24,16 @@ Channel created: Fri Jan 20 2017 12:33:15
 <egpattarrumieccentric_boiling_magma> И композиты
 <egpattarrumieccentric_boiling_magma> сидит зелёная тара в безвременьелоке и смотрит на кальпы материялоки
 <egpattarrumieccentric_boiling_magma> Как там большие взрывы случаются
+<nickname> egpattarrumieccentric_boiling_magma, а мне что по завещанию останется?
+<Словесник-Былинник> govno
+<nickname> (лишь бы шутка про говно, лишь бы шутка про говно)
+<nickname> УРА
+<Словесник-Былинник> :)))
+<nickname> )
+<egpattarrumieccentric_boiling_magma> https://github.com/HOLISTICRESEARCH/gamminsk.gm
+<egpattarrumieccentric_boiling_magma> См SEWERS.md
+<~orignal> Словесник-Былинник что за жесть на улице?
+<egpattarrumieccentric_boiling_magma> nickname: коммить в завещания
+<egpattarrumieccentric_boiling_magma> nickname: мы ж не враги тебе
+<egpattarrumieccentric_boiling_magma> В абдуловеру f20os ubuntu 20.04.x перейти
 ```
